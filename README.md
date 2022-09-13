@@ -1,0 +1,1 @@
+# Pamoka05_PraktinisDarbas
